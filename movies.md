@@ -1,3 +1,3 @@
-Sublet  
-Akira  
-Blue is the warmest color  
+Sublet
+Akira
+Blue is the warmest color
